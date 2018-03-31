@@ -1,3 +1,3 @@
-# Analytic Report and Research Proposal for Current Issue on Mass Shooting in US
+# Analytic Report and Research Proposal for Current Issue on Mass Shootings in US
 
 In Progress
